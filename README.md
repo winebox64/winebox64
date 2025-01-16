@@ -1,4 +1,4 @@
-## 🇧🇷 Hi there 👋 I am WB64 (Devel)
+## 🇧🇷 Hi there 👋 I am WB64 Devel
 - And I'm known as "__Devel__" on several communities.
 - I make things easier for myself and put them here.
 
